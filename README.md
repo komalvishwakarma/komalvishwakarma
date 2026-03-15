@@ -1,4 +1,4 @@
-# Hey, I'm Komal Vishwakarma 👋
+# Hey, I'm Komal S. Vishwakarma 👋
 
 Welcome to my GitHub!
 
